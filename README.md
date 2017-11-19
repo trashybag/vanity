@@ -1,3 +1,3 @@
 # vanity
 
-Can be invited [here](https://bit.ly/invvanity).
+### Can be invited [here](https://bit.ly/invvanity).
